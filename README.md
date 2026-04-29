@@ -1,2 +1,2 @@
-# wat-s-up
-first things of my profile 
+# you all can call me delta 
+i don't want to you want anyting about me 
