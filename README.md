@@ -1,4 +1,4 @@
-## My name is Fred Rodrigues 👽
+# My name is Fred Rodrigues 👽
 
 - Things about me:
 
