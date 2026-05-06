@@ -1,2 +1,5 @@
 ## My name is Fred Rodrigues 👽
-i don't want to you want anyting about me 
+
+- Things about me:
+like to play video games
+like know to miscellaneous things
