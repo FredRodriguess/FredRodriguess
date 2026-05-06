@@ -3,7 +3,7 @@
 - Things about me:
 
   
-like to play video games.  
+  like to play video games.  
 
 
-like know to miscellaneous things.  
+  like know to miscellaneous things.  
